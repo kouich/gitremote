@@ -1,3 +1,3 @@
 # gitremote
 
-KOUICHI
+KOUICHI はよ　
